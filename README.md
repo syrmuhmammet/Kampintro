@@ -1,2 +1,0 @@
-# Kampintro
-Yeni dosya
